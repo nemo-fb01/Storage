@@ -46,4 +46,5 @@ Bước ra khỏi thang máy, tôi gặp một phụ nữ lớn tuổi, tóc đ�
 
 Một ngày không xa, chúng tôi sẽ trở về thăm lại ngôi trường cũ của mình và chắc chắn sẽ làm một điều gì đó dù bé nhỏ để góp phần tô điểm thêm truyền thống của ngôi trường mà tôi yêu dấu, tôi tự hào về nó trong mỗi bước chân, mỗi ngả đường đi đến thành công. Bóng ngôi trường mỗi lúc một nhòa dần và tôi giật mình bừng tỉnh – thì ra đó chỉ là một giấc mơ báo trước tương lai, nhưng tôi tin rằng giấc mơ đó sẽ trở thành hiện thực."
 
-![Tên ảnh thay thế](https://i2.nhentai.net/galleries/3769076/3.webp)
+![Tên ảnh thay thế](https://png.pngtree.com/png-vector/20230803/ourmid/pngtree-flower-jpg-vector-png-image_6886195.png)
+<img src="https://png.pngtree.com/png-vector/20230803/ourmid/pngtree-flower-jpg-vector-png-image_6886195.png" width="300" height="200">
