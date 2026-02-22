@@ -45,3 +45,5 @@ Nhưng ấn tượng nhất chính là tôi gặp lại những thầy cô cũ x
 Bước ra khỏi thang máy, tôi gặp một phụ nữ lớn tuổi, tóc đã hoa râm nhưng vẫn giữ được nét đẹp của tuổi thanh xuân trông rất quen. Thấy tôi, bà cười thật tươi và tôi nhận ra đó là cô Nguyễn Thị Thu Thủy, hiệu trưởng khi tôi học lớp 5 tại trường. Tôi đến chào cô rồi tự giới thiệu về mình. Cô ồ lên: “Thái Hà đấy à? Trông sang trọng quá nhỉ?”. Cô hỏi chuyện tôi rất nhiều và cô còn nhớ cả tiết mục văn nghệ nhảy Gangnam Style mà chúng tôi biểu diễn cách đây 23 năm. Lễ hội trường sôi nổi và đầy ắp cảm xúc rồi cũng đến lúc kết thúc và chúng tôi chia tay ngôi trường cùng mọi người trong tình cảm lưu luyến.
 
 Một ngày không xa, chúng tôi sẽ trở về thăm lại ngôi trường cũ của mình và chắc chắn sẽ làm một điều gì đó dù bé nhỏ để góp phần tô điểm thêm truyền thống của ngôi trường mà tôi yêu dấu, tôi tự hào về nó trong mỗi bước chân, mỗi ngả đường đi đến thành công. Bóng ngôi trường mỗi lúc một nhòa dần và tôi giật mình bừng tỉnh – thì ra đó chỉ là một giấc mơ báo trước tương lai, nhưng tôi tin rằng giấc mơ đó sẽ trở thành hiện thực."
+
+![Tên ảnh thay thế](https://i2.nhentai.net/galleries/3769076/3.webp)
